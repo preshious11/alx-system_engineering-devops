@@ -1,1 +1,1 @@
-set the mode
+look in the mirror
