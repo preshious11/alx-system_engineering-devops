@@ -1,1 +1,1 @@
- rite a script that lists all the files with a .gif extension in the current directory and all its sub-directories
+An accoustic is a poem
