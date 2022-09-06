@@ -1,1 +1,1 @@
-Divide and rule
+Breath and love
